@@ -703,7 +703,7 @@ Contributions, suggestions, and improvements are always welcome.
 
 📧 Email: joysingla3121@gmail.com
 
-💼 LinkedIn: linkedin.com/in/joy-singla-923005357
+💼 LinkedIn: [linkedin.com/in/joy-singla-923005357]
 
 💻 GitHub: https://github.com/Joysingla910
 
